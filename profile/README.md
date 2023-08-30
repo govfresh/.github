@@ -2,7 +2,7 @@
 
 ## About
 
-Public service with and by the people. GovFresh features the people and innovations changing how democracy works.
+People. Technology. Democracy.
 
 ## Connect
 
