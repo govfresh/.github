@@ -2,7 +2,7 @@
 
 ## About
 
-People. Technology. Democracy.
+Design. Technology. Democracy.
 
 ## Connect
 
